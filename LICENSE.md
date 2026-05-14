@@ -1,4 +1,4 @@
-#  
+#  updated Scripts for anime card clash is the best anime card clash Script, featuring teleport and undetectable. Safe and powerful for all your needs.
 
 
 
